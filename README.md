@@ -6,3 +6,7 @@
 - https://faucet.paradigm.xyz/ 
 - https://goerli-faucet.pk910.de/ 
 - https://goerli-faucet.com/
+
+OKopkgoepgkoepgkoep
+erogkeopgkopekgopeg
+ergergrgeg
